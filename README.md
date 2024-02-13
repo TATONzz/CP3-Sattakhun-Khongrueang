@@ -1,1 +1,0 @@
-# CP3-Sattakhun-Khongrueang
